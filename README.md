@@ -14,6 +14,6 @@ It is only through the experience of activism that people see through the deluge
 
 This app is designed to use the latest of the new media technologiese support them to build their team and win in their struggle to get rid of the awful wrong they have taken up and so see through the propaganda to know who their true friends are.
 
-There are no shortage of issues - this government and their friends generate themm everyday. 
+There are no shortage of issues - this government and their friends generate them everyday. 
 
-there is no shortage of activists - this app is to help them be successful. 
+There is no shortage of activists - this app is to help them be successful. 
